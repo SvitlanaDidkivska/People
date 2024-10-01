@@ -1,2 +1,2 @@
 S.D.
-W.M.
+Wladyslaw Mostowicz
