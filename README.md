@@ -1,2 +1,2 @@
-S.D.
+Svitlana Didkivska
 Wladyslaw Mostowicz
